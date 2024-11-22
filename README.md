@@ -1,2 +1,0 @@
-# Information For Staffs
-**~~Soon~~**
